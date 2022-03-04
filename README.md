@@ -1,4 +1,8 @@
-I copyed this from Gliz
+I made this on my own.
+
+
+
+penguinblooket is my alt account
 
 
 
